@@ -1,0 +1,1 @@
+# kreator-szkicow-ofert-allegro-info
